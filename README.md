@@ -1,7 +1,7 @@
 # Bay Area Quarter Life
 > Hand-drawn comics poking fun at quarter life crises and living in Silicon Valley.
 
-"Bay Area Quarter Life" is a webcomic released from late 2012 to early 2013 and used to live at bayareaquarterlife.tumblr.com. On 2013-05-01, the author posted the following:
+"Bay Area Quarter Life" is a webcomic released from late 2012 to early 2013 that used to live at bayareaquarterlife.tumblr.com. On 2013-05-01, the author posted the following:
 
 > I will be closing down this comic in two weeks. I appreciate you all for reading!
 
